@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Lmfaoisyourfriend
+- 👀 I’m interested in learning about logical reasoning and other mental stimulation things
+- 🌱 I’m currently learning how to make a whatsapp bot
+- 💞️ I’m looking to collaborate on how to become better at making bots
+- 📫 you can reach me by sending a message into my gmail account
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: you are not real
+- i don't have any other things to describe myself so yeah this is my final introduction
